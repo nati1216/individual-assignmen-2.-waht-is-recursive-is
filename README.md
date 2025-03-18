@@ -1,1 +1,1 @@
-# individual-assignmen-2.-waht-is-recursive-is
+# individual-assignmen-2.-what-is-recursive-is
